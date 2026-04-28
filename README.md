@@ -86,7 +86,7 @@ University of North Texas
 
 - Kate Dau  
 - Aarya Acharya  
-- Sakeet Kopparapu  
+- Sakeet Kopparapu - **Link:** https://www.linkedin.com/in/kopparapu-sakeet/ 
 - Sulav Regmi  
 
 **Faculty Advisor:**  
