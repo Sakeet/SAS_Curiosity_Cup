@@ -87,7 +87,7 @@ University of North Texas
 - Kate Dau - www.linkedin.com/in/dhtn190301
 - Aarya Acharya  
 - Sakeet Kopparapu - https://www.linkedin.com/in/kopparapu-sakeet/ 
-- Sulav Regmi  
+- Sulav Regmi - https://www.linkedin.com/in/sulavregmi44
 
 **Faculty Advisor:**  
 - Professor Michel Fathi  
